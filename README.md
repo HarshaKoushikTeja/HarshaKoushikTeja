@@ -1,4 +1,4 @@
-# HarshaKoushikTeja
+# Harsha Koushik Teja Aila
 
 
 # 💫 About Me:
