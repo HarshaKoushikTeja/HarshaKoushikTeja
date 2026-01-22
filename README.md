@@ -1,4 +1,4 @@
-# HarshaKousshikTeja
+# HarshaKoushikTeja
 
 
 # 💫 About Me:
